@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @BrunoZarowne
 - 👀 I'm interessed in games, coding, cooking and sleeping
-- 🌱 I’m currently learning Portugol and Javascript
 - 📫 How to reach me just say hello!
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have 3 cats
